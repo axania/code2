@@ -4,4 +4,4 @@
 <h1> Good job on learning Devops</h1>
 <h1> please Lord I need this 6 figures </h1>
 <h1> I am very happy to be here right now and I enjoy as much as can these materiels linux and Devops </h1>
-<h1> have a nice day all of you guys </h1>
+<h1> such a good day guys ,i love it so much </h1>
